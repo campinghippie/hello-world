@@ -8,9 +8,11 @@ In order to achieve all this, he needs robotic (software)skills. To learn this, 
 1. ~~working day and night~~
 2. Code, Camp, Code, Motorcycle, Code, Socialize, Code, Motorcycle Maintenance, Code, Reading Book, Code, Surf, Code, Paraglide, Code etc.
 3. Repeat everyday
-4. 4. Don't allow doubt, negative emotion, follow your ratio; this is a good plan, because with fun is slow, slow is smooth, and smooth is fast 🥇, keeping coding Happy 👱‍♂️
+4. Don't allow doubt, negative emotion, follow your ratio; this is a good plan, because with fun is slow, slow is smooth, and smooth is fast 🥇, keeping coding Happy 👱‍♂️
 5. stay the f** out of conflict, struggle, stay in the (github) Flow!
 6. start out with ROBOSHOP.COM, a website focussed on selling robotic parts.
+7. Hippie Doesn't focus on the goals mentioned above, the camping, the company, a lot of things are out of Hippies control. Instead, focus on the proces, little steps Camping Hippie makes to improve his income and software   knowledge.
+8. Hippie will be proud on his transformation from inspiration to perspiration.
 
 [^1] This is a good plan, because Camping Hippie will be able to generate a constant flow of income to pump into the camping business while being present there and be able to automise and robotize barriers, bartenders, booking etc. Digital Nomads who are fleeing from dark northern winters are always welcome!
 
